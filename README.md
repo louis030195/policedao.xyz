@@ -1,3 +1,4 @@
+>the state is becoming thinner and thinner with civilization progress
 
 **policedao.xyz** is based on two ideas:
 
